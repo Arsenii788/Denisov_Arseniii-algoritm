@@ -3,3 +3,4 @@ https://docs.google.com/presentation/d/1JL8uJDhY1b44qlT9iZe4U3YlN5QseULAOKpw5goN
 https://drive.google.com/drive/folders/17rau8L97jvfva76G4Hap7MJudTS5RIkr?usp=sharing - базы данных
 https://drive.google.com/drive/folders/18x6HtzjpTkFM8FUZE1kkiNGe8uIasIXG?usp=drive_link - гугл диск
 https://drive.google.com/drive/folders/1N5zTOwn9qJWlXcLh3g18E7lPtvFQ86-_?usp=sharing - военкомат
+https://classroom.google.com/c/NzEyNTUxNDgwNzE0/m/NzE0OTIxOTg5MjIy/details - Adobe Illustrator
